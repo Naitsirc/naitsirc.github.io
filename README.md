@@ -1,1 +1,0 @@
-# naitsirc.github.io
